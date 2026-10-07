@@ -1,1 +1,0 @@
-# aakutskevych.github.io
